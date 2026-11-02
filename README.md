@@ -1,2 +1,2 @@
 # DIDA280
-digital publishing class 
+[Link to page](https://pparkinson-bit.github.io/DIDA280/)  
